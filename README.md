@@ -1,0 +1,6 @@
+- am Manjula-marla
+- 🌱 am pursuing degree final year..
+- 💞️ IT reputed companies ..
+- 📫 Kukatpally, JNTU, Aditya nagar,road no 2,mangu39...
+- 😄 Pronouns ☺️good
+- ⚡ Fun fact: art💐
